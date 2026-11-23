@@ -1,0 +1,1 @@
+Burada Bişey Yok Bruh
